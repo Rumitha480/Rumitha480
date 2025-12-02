@@ -18,7 +18,7 @@
 
 - ⚡ Fun fact :- Food and Music🎵 are the reasons to live.
 
-- 🏛️My company - softgen (www.softgen.lk)
+- 🏛️My working company - softgen (www.softgen.lk)
 
 <br>
 
